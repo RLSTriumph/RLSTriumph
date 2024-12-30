@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RLSTriumph (ChristianPRoblox
+- 👋 Hi, I’m @RLSTriumph (ChristianPRoblox)
 - 👀 I’m interested in Scripting for RLS.
 - 🌱 I’m currently learning Customer Service in college.
 - 💞️ I’m looking to collaborate on how to learn and understand on how to script for the first time, and I'm all to try out new things that the Realm has to offer.
